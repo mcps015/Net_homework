@@ -1,3 +1,3 @@
 # homework
-＜/br＞https://imgur.com/a/nYydZ 
-＜/br＞https://imgur.com/a/yyYDP
+https://imgur.com/a/nYydZ<br>
+https://imgur.com/a/yyYDP<br>
