@@ -11,8 +11,8 @@ HW4(10/30) Li-Fi https://imgur.com/a/rng75<br>
 HW5(11/06) ARP-request https://imgur.com/a/QV4fO<br>
 　　　　 　 ARP-reply　 https://imgur.com/a/Rk2Sy<br>
 <br>
-HW6-1(11/06) https://imgur.com/a/5X0D2<br>
-HW6-2(11/06) https://imgur.com/a/N5w4C<br>
+HW6-1(11/13) https://imgur.com/a/5X0D2<br>
+HW6-2(11/13) https://imgur.com/a/N5w4C<br>
 <br>
 --------------------------------------------------<br>
 Prj(10/16)<br>
