@@ -18,6 +18,5 @@ HW6-2(11/13) https://imgur.com/a/N5w4C<br>
 <br>
 --------------------------------------------------<br>
 Prj(10/16)<br>
-<br>
 Presentation Topics(1/8)<br>
 <br>
