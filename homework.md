@@ -1,4 +1,6 @@
 # homework
+學號: 410328755<br>
+<br>
 HW1(09/25) Question 2 https://imgur.com/a/VkJDa<br>
 <br>
 HW2(10/02) Prefix & Huffman https://imgur.com/a/nYydZ<br>
