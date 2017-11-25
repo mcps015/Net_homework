@@ -1,5 +1,5 @@
 # homework
-學號: 410328755<br>
+【學號: 410328755】<br>
 <br>
 HW1(09/25) Question 2 https://imgur.com/a/VkJDa<br>
 <br>
