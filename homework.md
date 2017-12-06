@@ -19,7 +19,7 @@ HW6-2(11/13) https://imgur.com/a/N5w4C<br>
 HW7(12/4) https://imgur.com/a/Bqlhf<br>
 <br>
 HW8(12/11) https://imgur.com/a/xIIFZ<br>
-　　　　　　https://imgur.com/a/xIIFZ<br>
+　　　　　 https://imgur.com/a/xIIFZ<br>
 <br>
 『以上功課皆補齊，還麻煩老師查看』<br>
 -------------------------------------------------------------------------------<br>
