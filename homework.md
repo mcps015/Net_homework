@@ -27,4 +27,5 @@ HW9(12/25) https://imgur.com/a/rOduX<br>
 -------------------------------------------------------------------------------<br>
 Prj1(10/16)<br>
 Prj2(1/1)<br>
+Presentation Topics(1/8) https://goo.gl/SX1A6F<br>
 <br>
